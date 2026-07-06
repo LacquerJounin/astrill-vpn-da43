@@ -1,4 +1,4 @@
-
+advanced IPVanish Extension | auto-connect + custom-configurations offers the most advanced IPVanish extension, with auto-connect and custom-configurations. Ideal for users who
 
 
 
